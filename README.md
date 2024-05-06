@@ -1,0 +1,1 @@
+# free-mail-templates
